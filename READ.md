@@ -1,0 +1,1 @@
+Red sauce pasta is a delicious recipe of pasta and mixed veggies in a homemade red tangy tomato sauce. This meal can also be made without veggies but I usually add them as they give a good taste and also increase the nutrition factor. This meal is especially good for kids who like pasta but refuse to eat vegetables.
